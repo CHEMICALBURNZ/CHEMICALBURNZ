@@ -19,7 +19,7 @@ I am an 19 year old independent artist! I am also an non-sharing N yumeshipper <
 
 ˙⋆✮ MY INTERESTS
 
-I am a huge fan of Pokemon, Project Moon, FNAF, Hollow Knight (I would say Silksong but I haven't played) , Murder Drones and Uma Musume Pretty Derby! Your free to INT with me to talk about any of these things, ESPICALLY Pokemon and Project Moon!!! My favourite Pokemon games are B/W, B/W2 and Pokemon Emerald! I am currently playing through Pokemon ZA. 
+I am a huge fan of Pokemon, Project Moon, FNAF, Hollow Knight (I would say Silksong but I haven't played) , Murder Drones, Resident Evil, the Fallout Game Series and Uma Musume Pretty Derby! Your free to INT with me to talk about any of these things, ESPICALLY Pokemon and Project Moon!!! My favourite Pokemon games are B/W, B/W2 and Pokemon Emerald! I am currently playing through Pokemon ZA. 
 
 
 That should be everything!! Thanks for checking out my profile heres an image of my husband 
