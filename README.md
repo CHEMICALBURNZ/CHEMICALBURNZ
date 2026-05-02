@@ -8,6 +8,7 @@ Someday I will fancy fill this out but for now, here's my basic introduction! If
 I am an 19 year old independent artist! I am also an non-sharing N yumeshipper <sub>before you harass me, do know that I understand I do not own the character N and others can like him too, I would just be able to prefer to control my own personal safespace!!</sub> I am usually a very friendly person to interact with if you want to, but I tend to be offtab a lot so whispers are preferred!
 
 ˙⋆✮ FRIENDS
+
 Check out my awesome friends @veepqn and @Fufuyio1206
 
 ˙⋆✮ DNI
